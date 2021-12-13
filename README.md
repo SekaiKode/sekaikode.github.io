@@ -1,1 +1,1 @@
-# sekaikode.github.io
+# sekaikode
